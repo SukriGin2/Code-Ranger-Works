@@ -1,1 +1,1 @@
-# All the works throughtout the classes with Code Rangers; Jun & Ziyan
+# All the works throughout the classes with Code Rangers; Jun & Ziyan
